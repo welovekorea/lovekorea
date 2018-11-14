@@ -1,2 +1,0 @@
-# lovekorea
-Publishing products
